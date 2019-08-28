@@ -1,1 +1,1 @@
-# stu
+# Professional food, amateur yard farmer
